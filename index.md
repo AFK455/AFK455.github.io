@@ -5,7 +5,7 @@
 
 ***Email:** bilalrizvi1@hotmail.com*
 
-**Phone:** +923313621862*
+***Phone:** +923313621862*
 
 
 ## **Career Objective:**
