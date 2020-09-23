@@ -1,4 +1,4 @@
-![My Avatar](https://i1.sndcdn.com/artworks-000110676327-ahcvd7-t500x500.jpg)
+![My Avatar](https://www.iconninja.com/files/579/690/459/anonymous-icon.svg)
 # **AFK_455**
 
 ***Address:** 3/F, Jamshed Quarters, Binnori Town, East Karachi, Pakistan*
